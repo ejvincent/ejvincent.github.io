@@ -44,7 +44,7 @@ This would require a re-model of at least part of the kitchen. Will consider thi
 
 https://products.geappliances.com/appliance/gea-category/ranges?COOKTOP+TYPE=Induction
 
-GE is now owned by a Chinese company, and I see a consistent theme of dates design (other than maybe their cafe line) + not so good reliability. I think this brand is a pass for me.
+GE is now owned by a Chinese company, and I see a consistent theme of dated design (other than maybe their cafe line) + not so good reliability. I think this brand is a pass for me.
 
 ### KitchenAid
 
