@@ -150,4 +150,4 @@ $6.8k
 
 http://www.vikingrange.com/consumer/product/products/cooking/freestanding-ranges/viking-professional-5-series-ranges/electric-ranges---ver-vir/30--electric-induction-range---vir530
 
-#8k
+$8k
