@@ -10,16 +10,13 @@ Leg exercises:
 
 Hip stretch/exercise:
 
-> I also incorporated a series of hip movements that I stole from a fantastic Tim Ferriss book, called the Reverse Jane Fonda. I believe it’s from Peter Attia, a genius in the strength and longevity space. It’s hard to describe but involves lying on the ground to perform side raises, bicycles, front and back kicks and circles with individual legs.
+> I also incorporated a series of hip movements that I stole from a fantastic Tim Ferriss book, called the Reverse Jane Fonda.
 
 Above wasn't enough. Needed regular glute activation:
-
-> Unfortunately, any time I go for a walk or hike on ground that isn’t flat, the dreaded ‘needle in the knee’ comes rushing back.
 
 > The glute kegel concept is relatively simple: clench your cheeks as hard as possible for 5–10 seconds, for several sets throughout the day. Additionally, when you’re walking, make an effort to clench the glutes as you take a stride, feeling the muscle work on either side.
 
 > I did 3 sets of 10-second clenches multiple times throughout the day. I’d stand up from my desk, pretend to stretch and clench the cheeks extra tight. When I brushed my teeth in the morning and at night, when I walked, when I was warming up for my regular rehab movements — glute kegels constantly.
-> My knee pain was gone by the week before we left for the trail.
 
 ## https://www.reddit.com/r/Fitness/comments/282xcb/you_mean_like_kegels_yes_but_it_helped_my_knees/
 
